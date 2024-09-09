@@ -1,1 +1,1 @@
-**I will never create or support AI-generated or blockchain/NFT-based content.**
+**I will never create or support generative AI or content made with it, or NFT-based content.**
